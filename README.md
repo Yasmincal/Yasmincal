@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 000000
 - 😄 Pronouns: ela/dela 
 - ⚡ Fun fact: eu sei tocar piano 
--->
